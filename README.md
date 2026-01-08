@@ -1,0 +1,1 @@
+# BridgeCo.-Ltd.WorkAssistanceSoftware
